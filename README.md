@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @AnndraMac
+- 👀 I’m interested in being better
+- 🌱 I’m currently learning how to be better
+- 💞️ I’m looking to collaborate on projects that make things a bit better
